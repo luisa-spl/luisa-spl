@@ -1,4 +1,4 @@
-## Oi, eu sou a Luisa! 👋
+## Hi, I'm Luisa! 👋
 - 👩‍🎓 Student at Unicsul - Systems for Internet
 - 👯 Improving my knowledge every day with hard work and practice!
 - 💗 I love 🐈, listening 🎼, traveling 🗺️ and learning new things 💭.
